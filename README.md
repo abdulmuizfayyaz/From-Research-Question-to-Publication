@@ -8,3 +8,5 @@ I am delighted that the session was successfully conducted and received such an 
 It was a pleasure interacting with aspiring researchers and students, and I hope the session contributed meaningfully to their research journey.
 
 #IEEE #Research #AcademicResearch #ResearchPublication #ScientificWriting #PublicationJourney #Webinar #ResearchSkills #HigherEducation
+
+<img width="2000" height="1125" alt="image" src="https://github.com/user-attachments/assets/01905158-cf21-417a-a64e-a3c2f9b07610" />
