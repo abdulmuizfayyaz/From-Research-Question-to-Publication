@@ -10,3 +10,6 @@ It was a pleasure interacting with aspiring researchers and students, and I hope
 #IEEE #Research #AcademicResearch #ResearchPublication #ScientificWriting #PublicationJourney #Webinar #ResearchSkills #HigherEducation
 
 <img width="2000" height="1125" alt="image" src="https://github.com/user-attachments/assets/01905158-cf21-417a-a64e-a3c2f9b07610" />
+
+**Guest Speaker**
+<img width="1994" height="1125" alt="image" src="https://github.com/user-attachments/assets/7dd40a96-29b9-443c-8d83-bb5d4eb6e037" />
